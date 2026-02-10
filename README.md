@@ -1,7 +1,4 @@
 
-https://radcolombia.org/web/sites/default/files/archivos/instituciones/universidad-nacional-colombia/logo.png
-
-
 # Object Oriented Programming(OOP) Course Class Videos
 # Semester 2026-1
 # Teacher: Walter H. Arboleda
