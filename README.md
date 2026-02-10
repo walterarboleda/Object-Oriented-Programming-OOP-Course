@@ -1,7 +1,4 @@
-![image alt] (https://github.com/walterarboleda/Object-Oriented-Programming-OOP-Course/blob/f57240b0f5dbedefbc3c9881722cf12ae4cf3792/universidad-nacional-colombia-logo.png)
-
-
-universidad-nacional-colombia-logo.png
+![universidad-nacional-colombia-logo](https://github.com/user-attachments/assets/f5f1ce3d-eda8-42a2-8f97-d5b126f772cd)
 
 # Object Oriented Programming(OOP) Course Class Videos
 # Semester 2026-1
