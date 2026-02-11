@@ -9,3 +9,5 @@
 ## Thursday: https://drive.google.com/file/d/1jzxcuk7twSZ2Ynpnieijx7e6C-7vT9Sq/view?usp=sharing
 
 # Week 2
+## Tuesday: https://drive.google.com/file/d/1RuiPylSd0NMD4L-cdv38cOCTWfOKnUHY/view?usp=sharing
+
