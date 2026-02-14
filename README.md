@@ -14,4 +14,9 @@
 
 # Week 2
 ## Tuesday: https://drive.google.com/file/d/1RuiPylSd0NMD4L-cdv38cOCTWfOKnUHY/view?usp=sharing
+## Thursday: https://drive.google.com/file/d/1DCIVptzmobsSrX9YzhY6mUojxVyouVSj/view?usp=sharing
+
+# Week 3
+
+
 
