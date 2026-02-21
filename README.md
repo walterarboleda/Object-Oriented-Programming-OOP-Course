@@ -18,6 +18,8 @@
 
 # Week 3
 ## Tuesday:https://drive.google.com/file/d/1ewygCRLpy2Qlr-9oQTP7q5mkoy_ZJNbd/view?usp=sharing
+## Thursday:https://drive.google.com/file/d/1hfKxo3Kh3qYRevKDoAIeh8RPGkW8zNMC/view?usp=sharing
+
 
 
 
