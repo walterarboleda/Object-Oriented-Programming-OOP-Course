@@ -30,5 +30,5 @@
 
 # Week 6
 ## Tuesday:https://drive.google.com/file/d/1l-0fInEkq2C5FVu_99H0twOkIrPqLKqg/view?usp=sharing
-## Thursday:
+## Thursday:https://drive.google.com/file/d/1Dwmk3HgOEt25hdiGTBwFoBOidLR4Ybbv/view?usp=sharing
 
