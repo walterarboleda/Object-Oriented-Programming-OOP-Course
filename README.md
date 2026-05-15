@@ -38,7 +38,12 @@
 
 # Week 7
 ## Tuesday:https://drive.google.com/file/d/1efqtEfAtb4pse8tcCuDKhOZqjwvBrwnf/view?usp=sharing
+## Thursday:https://drive.google.com/file/d/1ZYzNo6w8zAJLNPemKynLGDx0Lg-SBlFT/view?usp=sharing
+
+# Week 8
+## Tuesday:
 ## Thursday:
+
 
 
 
