@@ -41,7 +41,7 @@
 ## Thursday:https://drive.google.com/file/d/1ZYzNo6w8zAJLNPemKynLGDx0Lg-SBlFT/view?usp=sharing
 
 # Week 8
-## Tuesday:
+## Tuesday:https://drive.google.com/file/d/1WfKtzLrQTK9NXjs7KnoY3nQsdD2-vU0m/view?usp=sharing
 ## Thursday:
 
 
