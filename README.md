@@ -58,7 +58,7 @@
 ## Thursday:https://drive.google.com/file/d/1GwZSLOOIll57wh6JkTjiWEB6NuSVGGMi/view?usp=sharing
 
 # Week 12
-## Tuesday:
+## Tuesday:https://drive.google.com/file/d/1kRTXu2mThV1B02_RBimu8sWcalwRyJdf/view?usp=sharing
 ## Thursday:
 
 
